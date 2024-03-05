@@ -1,10 +1,10 @@
 ### Hi there 👋
 
-My name is yuyuyura.
+My name is Yura Choi.
 
 - 🤔 I’m looking for help with STUDENT
 - 💬 Ask me about INTP
-- 📫 How to reach me: NOTHING
+- 📫 How to reach me: http://www.linkedin.com/in/yuyuyura
 - ⚡ Fun fact: CAFE TOUR
 
 <h3 align="left">Languages and Tools:</h3>
