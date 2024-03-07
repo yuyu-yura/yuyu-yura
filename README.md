@@ -2,7 +2,7 @@
 
 My name is Yura Choi.
 
-- 🤔 I’m looking for help with STUDENT
+- 🤔 I’m looking for help with JOB SEEKER
 - 💬 Ask me about INTP
 - 📫 How to reach me: http://www.linkedin.com/in/yuyuyura
 - ⚡ Fun fact: CAFE TOUR
